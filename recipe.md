@@ -1,0 +1,1 @@
+mixed the wet and dry ingredients and bake in oven for 35 minutes
